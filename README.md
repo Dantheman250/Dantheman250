@@ -4,6 +4,5 @@
 - 💞️ I’m looking to collaborate on people
 - 📫 How to reach me idk  
 - 😄 Pronouns: male
-- ⚡ Fun fact: i am retarded
-
+- ⚡ Fun fact: i am a cretin
 
